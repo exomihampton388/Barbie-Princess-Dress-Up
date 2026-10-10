@@ -217,4 +217,4 @@ Barbie Princess Dress Up is the full free version, including all features and up
 Start your fashion adventure today! Download Barbie Princess Dress Up and let your creativity shine!
 
 ---
-**Last updated:** 2026-10-09 20:25:43 UTC
+**Last updated:** 2026-10-10 00:24:11 UTC
